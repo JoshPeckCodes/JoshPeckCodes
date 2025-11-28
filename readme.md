@@ -1,4 +1,4 @@
-# 🚀 GM, LEGENDS — Welcome to My Corner of the Metaverse 🌐  
+# 🚀 GM, LEGENDS - Welcome to My Corner of the Metaverse 🌐  
 Because no crypto bro profile is complete without an absolutely *unnecessary* wall of badges:
 
 ![WAGMI](https://img.shields.io/badge/WAGMI-100%25-brightgreen)
@@ -37,6 +37,6 @@ Decentralization. Freedom. Community.
 Also: vibes, memes, and pretending volatility is part of the plan.
 
 ## 📬 Connect With Me
-If you want to talk tokenomics, airdrop speculation, moon theory, or discuss past rugs as a form of group therapy — I’m here.
+If you want to talk tokenomics, airdrop speculation, moon theory, psychedelics, or discuss past rugs as a form of group therapy - I’m here.
 
 **Stay degen. Stay blessed. Stay permanently on-chain.**
